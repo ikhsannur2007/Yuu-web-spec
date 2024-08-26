@@ -2,8 +2,8 @@
 - 🎶 The Night
 - 💞️ MylopEnjel
 - 🕌 Islam
-- 😄 Ramah And Sopan
-- 🤡 Badutmu Setiap saat
+- 😄 Ramah And Sopan(kejam)
+- 🤡 Badut pinggir jalan
 
 <!---
 Yuu-web-spec/Yuu-web-spec is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
