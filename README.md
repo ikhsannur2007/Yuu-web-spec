@@ -1,9 +1,10 @@
 - 👋 Halo Namaku Yuu
-- 🎶 The Night
 - 💞️ MylopEnjel
 - 🕌 Islam
-- 😄 Ramah And Sopan(kejam)
-- 🤡 Badut pinggir jalan
+- 😄 Ramah And Sopan
+- 🤡 Badutmu Setiap Saat
+- 🧠 Tidak Pintar
+- ➡  TNI AL
 
 <!---
 Yuu-web-spec/Yuu-web-spec is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
