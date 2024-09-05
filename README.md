@@ -1,6 +1,6 @@
 - 👋 Halo Namaku Yuu
 - 💞️ MylopEnjel
-- 🕌 Islam
+- ⛪
 - 😄 Ramah And Sopan
 - 🤡 Badutmu Setiap Saat
 - 🧠 Tidak Pintar
